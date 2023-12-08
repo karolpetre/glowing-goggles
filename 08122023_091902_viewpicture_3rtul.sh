@@ -1,0 +1,1 @@
+There is an organization called SCROOGE in Charlottesville, Virginia that stands for Society to Curtail Ridiculous, Outrageous, and Ostentatious Gift Exchanges. This was formed to keep gift giving affordable and simple
